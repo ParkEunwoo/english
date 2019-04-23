@@ -25,9 +25,21 @@ Controversy in Comedy
 - family tree
 - outsourced
 - pineapple express
-- present
+- saturday
 - the colbert report
 - the daily show
 - thank you for smoking
 - hang over
 - we're the millers
+
+Diversity in Profession
+---
+- elementary
+- the mentalist
+- csi
+- hawaii five-O
+- er
+- grey's anatomy
+- house
+- law and order
+- suits
