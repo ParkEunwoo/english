@@ -43,3 +43,15 @@ Diversity in Profession
 - house
 - law and order
 - suits
+
+Sci Fi
+---
+- quantum leap
+- land of the last
+- walking dead
+- star trek
+- west world
+- the X files
+- doctor who
+- alf
+- red dwarf
