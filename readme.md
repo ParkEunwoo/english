@@ -67,3 +67,15 @@ Love
 - this is us
 - the oc
 - the l word
+
+Reality
+---
+- the bachelorette
+- the real housewives
+- big brother
+- so you think you can dance
+- american idol
+- outwit outplay outlast survivor
+- the voice
+- the amazing race
+- the x factor
