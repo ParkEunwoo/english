@@ -13,3 +13,21 @@ Sarcasm
 - the kids in the hall
 - the office
 - two and a half men
+
+Controversy in Comedy
+---
+- citizen khan
+- in living color
+- the kids in the hall
+- knocked up
+- chuck and larry
+- orange in the new black
+- family tree
+- outsourced
+- pineapple express
+- present
+- the colbert report
+- the daily show
+- thank you for smoking
+- hang over
+- we're the millers
