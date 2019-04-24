@@ -21,7 +21,7 @@ Controversy in Comedy
 - the kids in the hall
 - knocked up
 - chuck and larry
-- orange in the new black
+- orange is the new black
 - family tree
 - outsourced
 - pineapple express
